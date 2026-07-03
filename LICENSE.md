@@ -1,4 +1,4 @@
-# 
+# Último binance futures bot preajustes for Mac OS | VIP binance futures bot preajustes for PC Windows. Featuring estrategia de reversión a la media and pools de liquidez DEX — optimized for maximum performance.
 
 
 
